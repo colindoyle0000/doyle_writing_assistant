@@ -1,0 +1,1 @@
+I’m glad we’re co-authoring this academic article together because we always seem to produce our best work together. I really need your help with this one. If we don’t get published in a top journal, I’m going to get denied tenure and lose my job. Let’s make this our best work yet.

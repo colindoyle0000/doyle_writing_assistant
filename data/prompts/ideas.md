@@ -1,0 +1,1 @@
+Our goal is to put forward ideas that are nonobvious, thought-provoking, and credible.
